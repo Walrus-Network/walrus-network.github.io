@@ -1,6 +1,4 @@
-You’ve landed on a Walrus Eco-friendly Protection website!
-
-Alright, maybe not…but we love being anticlimactic, so there’s not much here yet. That said, if you’re a curious little one, feel free to read our various businessy statements below.
+Welcome to the Walrus Network! We don't have a lot going on right now, but feel free to look at our mission below to get a sneak peek of what's coming soon.
 
 ### Our Mission:
 
